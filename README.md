@@ -1,1 +1,1 @@
-Frontend developer from sweden
+Frontend developer from Sweden
